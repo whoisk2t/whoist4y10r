@@ -1,16 +1,18 @@
-### Hi there 👋
+![image](https://i.pinimg.com/564x/49/e4/87/49e4875e409a53d67c8aea44bd26b3a9.jpg)
 
-<!--
-**whoist4y10r/whoist4y10r** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+.・。.・゜✭・.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ ⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ 　 🀥 - ,,***ᴛ*****ᴀʏʟᴏʀ** ***✧˖°*** ***ᴛ*****ᴀʏ** 
+
+——————        ***ꜱ*****ʜᴇ** ***彡*** ***ʜ*****ᴇʀ** 
+
+ ***˗ˏˋ ´ˎ˗　 ⁺***
+  　
+**ʜᴏᴡ** ᴅɪᴅ ***ᴡᴇ*** ɢᴇᴛ ***ʜᴇʀᴇ*** 
+
+.・。.・゜✭・.
+
+
+![image](https://i.pinimg.com/564x/96/9f/1d/969f1d7d9a238dd94d07fa6e96922d93.jpg)
