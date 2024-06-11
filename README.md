@@ -1,4 +1,4 @@
-![image](https://i.pinimg.com/564x/e9/52/77/e95277fa123e669b58fb0a0c6a3a9d5b.jpg)
+![image](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/1cf55e4d-2dd9-44e3-8125-f679072c4820)
 
 
 .・。.・゜✭・.
@@ -15,4 +15,4 @@
 .・。.・゜✭・.
 
 
-![image](https://i.pinimg.com/564x/07/87/8d/07878dd755a3e003484f77f99decb243.jpg)
+![image](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/ce568e3b-17ab-4cc3-a4b2-e40ab957ab24)
