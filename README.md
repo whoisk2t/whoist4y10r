@@ -1,5 +1,4 @@
-![image](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/1cf55e4d-2dd9-44e3-8125-f679072c4820)
-
+![image](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/3c27d2c4-a19c-4a75-8255-ad405e49fcf5)
 
 .・。.・゜✭・.
 
@@ -15,4 +14,4 @@
 .・。.・゜✭・.
 
 
-![image](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/ce568e3b-17ab-4cc3-a4b2-e40ab957ab24)
+![image!](https://github.com/whoist4y10r/whoist4y10r/assets/166577127/6352f335-861a-458f-9dde-9c0f0fd77be0)
